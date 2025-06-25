@@ -1,5 +1,3 @@
-# ⚙️ Actions and Stuff 1.5 (Official) Free Download for MCPE Latest Version
-
 ### [Actions and Stuff 1.5 Download Link](https://actions-and-stuff.apkrabi.com/) 🔗
 
 **Actions and Stuff 1.5** is the latest official add‑on for Minecraft Bedrock (including mobile/MCPE), bringing curated animations, enhanced textures, and performance optimization to your game. This pack revitalizes how mobs and players move—adding personality and dynamism to your Minecraft world.
